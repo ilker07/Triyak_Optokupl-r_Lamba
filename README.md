@@ -1,0 +1,1 @@
+# Triyak_Optokupl-r_Lamba
